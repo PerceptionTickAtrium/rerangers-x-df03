@@ -1,4 +1,4 @@
-#  
+#  Experience re:rangers x like never before with re:rangers x custom Script, the #1 Script. Includes teleport and auto-sell for unbeatable performance.
 
 
 
